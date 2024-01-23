@@ -1,0 +1,1 @@
+Izmēģinājuma eksāmens 💀
